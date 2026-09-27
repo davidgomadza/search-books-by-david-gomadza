@@ -1,5 +1,5 @@
 # search-books-by-david-gomadza
-booksvby david gomadza
+books by david gomadza
 SETTING UP CREATEBITCOIN CONTINUED BUYING COMPANY SHARES.START,
 How To Find All Missing Persons / Unsolved Cases. And Collect All Reward Offers. The Formula. Volume LXI. THE CASE OF CARSON MCNUTT,
 How To Find All Missing Persons / Unsolved Cases. And Collect All Reward Offers. Volume XXVIII.,
